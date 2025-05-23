@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Piyus-dm
+- 👋 Hi, I’m @Piyus-dm if you want a website developed by me please contact me through my website.
 - 👀 I’m interested in programming and digitalist
 - 🌱 I’m currently learning react and mernstack as well as digital marketing advance course
 - 💞️ I’m looking to collaborate on businesses that help them to recognize digitally
